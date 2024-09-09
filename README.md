@@ -12,4 +12,5 @@ diniz.luis@escola.pr.gov.br
 
 @dinizinh0_
 
+![]()
 ![](https://media1.tenor.com/m/5kHllJUpSZIAAAAd/chamber-valorant.gif)
